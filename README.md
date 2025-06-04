@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Justino!
-- 👀 Eu sou estudante de Ciência da Computação.
-- 🌱 Além de português, falo inglês e francês.
+- 👀 Computer Sciences student!
+- 🌱 Besides Portuguese, I speak English and French
 - 😄 Pronouns: Any! (pref she/they)
 - ⚡ Fun fact: i REALLY like vampires.
