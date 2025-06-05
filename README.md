@@ -2,4 +2,4 @@
 - 👀 Computer Sciences student!
 - 🌱 Besides Portuguese, I speak English and French
 - 😄 Pronouns: Any! (pref she/they)
-- ⚡ Fun fact: i REALLY like vampires.
+- 🦇 Fun fact: i REALLY like vampires.
