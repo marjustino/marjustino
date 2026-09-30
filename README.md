@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Justino!
+- 👋 Hi, I’m Alune.
 - 👀 Computer Sciences student!
 - 🌱 Besides Portuguese, I speak English and French
-- 😄 Pronouns: Any! (pref she/they)
+- 😄 Pronouns: She/Her
 - 🦇 Fun fact: i REALLY like vampires.
